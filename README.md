@@ -2,18 +2,8 @@
 
 intended...
 
-you know... i think i burped out a big one and life ran away again.  another dream in reality.  i wonder the price of these things i do to you i wonder you would do to me.  so we do things to each other.  am i correct?  so i did a weird one to you.  you did a weird one first remember that.  anyways,i wonder why you sit here pretending you dont know what you're doing.  one profile view in private mode sucks dude.
+i wonder though.  that i am doing the wrong thing i keep coming back here to make things right.  then we continue this nonsense on here with you.  and then you send linkedin every 3 months on average.  then what?  i dont know.  1 year is depressing to wait for a deadline that never came.  why do i need this deadline?  otherwise you would never get around to dealing with it.  tell me i'm wrong bro...
 
-i'm trying to understand why i do this and its a release and let go system.  i produce nothing of quality just quantity.  and sometimes i wonder why these tangents were random and yet you press them on me.  i dont get it.
+anyways, back to smart thinking...  you know i'm flat broke anything would fix this shit and we have nothing once again.  so you see how tightly this stupid shark holds me.  my whole life i could not join the living.  that's what my previous life was about.  the one you took me out of right off the bat and i have had to explain to you things...  either way,  you die more than one time here stop being a cunt you dead anyways lol.  so yeah that makes no sense at all.  i get it though, you want to minimize pain and suffering.  that must be it.  or i'm chasing ghosts again.  that's your fault lol.  see how much doesn't make much sense at all when you look at it???  yet you keep pressing these things on me bro.  i am tired.
 
-maybe you were trying to see value where there was none.  that i am stuck like this still you idiot.  i dont know how long this is gonna take.  it'll be a while all i know.  from precedent lol...
-
-seriously though, i dont know man.  its another day we did this.  for people caught in a review panel you sure respond a little strangely.  excessive i must admit.  of doing nothing of course...  i dont know man, we just feeling tired its been 5 years bro.  another week we are clean of your works.  i forgot to tell you altruistic work has its benefitis its not maintained by lousy shit.  so i doubt you have any more shit for me to do.  so i'll take it as a point of reference saved here.  that we finished this aspect of something i dont remember anymore is now complete...
-
-yeah i dont want to tell you if you wanted to go the altruistic route here, well, you would be paying out the ass for something stupid you did.  remind you of something that happened recently since i met you???  i wonder dude.  one brain cell couldn't be tortured to understand.  and i see no monees.  god forbid i do something unnecessarily brutal on your asses right before you were willing to stop and give in and pay the damn thing.  anyways, that's what i was thinking...  i've gotten pretty good at memorizing stupid thoughts.  you have to orient your way around it...  dont pay any attention to that though.  it was important.  like whatever the fuck we did in your mk ultra.  i just don't get it.
-
-you sit there and you complain i do bad things and then you do some more and you start wondering...  what was the purpose to all this? i wonder.  so the guy on the end punishing you wonders what we are doing...  so i was wondering what your issue is with being so uptight...
-
-anyways...  things that happened today.  maybe i should have kept my mouth shut i would not have to take so much haldol...  real life problems i dont want to deal with.  just fuck it.  if you cancel something someone is gonna complain...  but i complain louder...  so who matters more???
-
-anyways...  another day we did some work for the idiot providing a miserable day for him he loves it so much that it confuses me.  you guys stink lol...  lots of things are problems. i just stopped bothering.
+there will be a hiatus or something of this place.  i'm gonna go spend my time on other things.  be here less.  you know how to find me.
