@@ -15,3 +15,7 @@ i'm tired you mofo...  i dont enjoy coming here but you are missing a few nuts a
 so you know, things can still go wrong in this game we play.  i dont know why it might go that way but it might and will.  anyways, i don't bother doing stuff anymore to appease your asses cause you stink and this is all you cause.  nonsense on a chat board.
 
 i wonder why we don't do normail things anymore...
+
+sooo.  this thing is expending quite a bit of maintenence to keep up.  i'm surprised i dont fail my alien shit till i figure it out lol.  this too fucking hard man.  too many choices in multiple choice question.  they look all the same to me...
+
+i never woke up you guys...  a state of normalness...  this shark has taken very much of my life...  only cause he owes and pays and shit that i hang around.  it was never guaranteed to stay here.
